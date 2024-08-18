@@ -1,6 +1,6 @@
 this is changseob's dusty repository
 
-i usually work on 1-day projects when inspiration hits him
+i usually work on 1-day projects when inspiration hits me
 
 currently working hard to send double digits xoxo ❤️
 
