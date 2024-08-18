@@ -1,4 +1,8 @@
-## Hi there 👋
+this is changseob's dusty repository
+
+i usually work on 1-day projects when inspiration hits him
+
+currently working hard to send double digits xoxo ❤️
 
 <!--
 **changsublime/changsublime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
